@@ -1,16 +1,25 @@
-## Hi there 👋
+୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ୧୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ୧୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ୧୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ୧୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ୧
 
-<!--
-**JAS0NPETERTODD/JAS0NPETERTODD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+Jason Peter Todd   ˎˊ˗   Son of Gotham
+
+
+
+
+
+<img width="540" height="279" alt="Image" src="https://github.com/user-attachments/assets/46709ca2-2951-446d-bce0-9440106d8ff8" />
+
+
+
+
+
+꒰ If I didn't love this city so much I'd hate it. ꒱
+
+
+
+
+
+
+<img width="540" height="279" alt="Image" src="https://github.com/user-attachments/assets/66062089-a616-4ca2-a976-fc1ab061e8e6" />
