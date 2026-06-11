@@ -1,4 +1,4 @@
-(https://komarev.com/ghpvc/?username=JAS0NPETERTODD)&label=YOUR+NEW+TEXT
+![](https://komarev.com/ghpvc/?username=JAS0NPETERTODD&abbreviated=true&color=blue))&label=Criminals
 
 $\color{red}{\text{୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ୧୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ୧୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ୧}}$
 ![](https://komarev.com)
