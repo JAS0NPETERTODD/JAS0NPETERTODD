@@ -8,7 +8,8 @@
 
 
      
-  ꒰ If I didn't love this city so much I'd hate it. ꒱
+
+$\color{red}{\text{꒰ If I didn't love this city so much I'd hate it. ꒱}}$
 
 
 
