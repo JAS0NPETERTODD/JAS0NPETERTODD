@@ -9,5 +9,5 @@ $\color{red}{\text{꒰ If I didn't love this city so much I'd hate it. ꒱}}$ �
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="540" height="279" alt="Image" src="https://github.com/user-attachments/assets/66062089-a616-4ca2-a976-fc1ab061e8e6" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="452" height="552" alt="Image" src="https://github.com/user-attachments/assets/aa1626ca-3240-4746-92e8-6a2fe8a1db73" />
 ㅤㅤ
