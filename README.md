@@ -1,7 +1,7 @@
 $\color{red}{\text{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ }}$
 
 $\color{red}{\text{(˶˃ ᵕ ˂˶)}}$
-ㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤ![Profile views](https://views.igorkowalczyk.dev/api/badge/CRY0FFE4R?style=classic&color=57201a&labelColor=57201a&label=morphineㅤsyringes)
 
 
 
