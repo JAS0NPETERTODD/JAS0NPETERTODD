@@ -1,5 +1,5 @@
 $\color{red}{\text{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ }}$
-![Profile views](https://views.igorkowalczyk.dev/api/badge/CRY0FFE4R?style=classic&color=57201a?label=criminals)
+![Profile views](https://views.igorkowalczyk.dev/api/badge/CRY0FFE4R?style=classic&color=57201a&label=criminals)
 
 $\color{red}{\text{(˶˃ ᵕ ˂˶)}}$
 ㅤㅤㅤㅤㅤ
