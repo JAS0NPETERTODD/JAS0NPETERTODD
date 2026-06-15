@@ -4,7 +4,7 @@ $\color{red}{\text{(˶˃ ᵕ ˂˶)}}$
 ㅤㅤㅤㅤㅤ
 
 
-![Profile views](https://views.igorkowalczyk.dev/api/badge/CRY0FFE4R?style=classic&color=57201a&labelColor=777d40&label=morphineㅤsyringes)
+![Profile views](https://views.igorkowalczyk.dev/api/badge/CRY0FFE4R?style=classic&color=777d40&labelColor=57201a&label=morphineㅤsyringes)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
