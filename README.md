@@ -1,5 +1,5 @@
 $\color{red}{\text{⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ }}$
-
+![Github Views](https://views.igorkowalczyk.dev/api/badge/JAS0NPETERTODD?label=criminals)
 
 $\color{red}{\text{(˶˃ ᵕ ˂˶)}}$
 ㅤㅤㅤㅤㅤ
